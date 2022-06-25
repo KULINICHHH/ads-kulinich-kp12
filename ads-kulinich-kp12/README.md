@@ -1,1 +1,0 @@
-# ads-kulinich-kp12
